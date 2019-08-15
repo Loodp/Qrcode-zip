@@ -40,4 +40,4 @@
 
 暂时不知道怎么解决
 
-如果有更好的方法请联系我 maka_dvlp@163.com
+如果有更好的方法请联系我 xiangli@loodp.com
